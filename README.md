@@ -1,1 +1,1 @@
-Rachit (25/SCA/MCAN/021)
+Rachit Gautam (25/SCA/MCAN/021)
